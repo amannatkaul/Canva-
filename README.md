@@ -1,2 +1,2 @@
-# Canva-
-Canva projects (logos,labels etc.)
+
+Canva Logos,labels,videos on a product launched (by me and my friend )
